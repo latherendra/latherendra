@@ -1,6 +1,6 @@
-👋 Hi, I’m Narendra Maurya @latherendra
+👋 Hi, I’m Narendra Maury (@latherendra)
 
-- 📫 How to reach me: maurynarendra@gmail.com
+📫 How to reach me: maurynarendra@gmail.com
 <!---
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
