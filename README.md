@@ -1,4 +1,4 @@
-👋 Hi, I’m Narendra Maury (@latherendra)
+👋 Hi, I’m Narendra Maury (@narendramaury)
 
 📫 How to reach me: maurynarendra@gmail.com
 <!---
